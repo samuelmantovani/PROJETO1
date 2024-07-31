@@ -1,1 +1,1 @@
-# TELA DE DESENHO 🖋🎨🖼👩‍🎨
+# TELA DE DESENHO 🖋🎨🖼
